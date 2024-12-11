@@ -1,1 +1,7 @@
-# dni
+<p align="center">The fact i had to make this after having no dni for months says a lot about who its targetted at.
+<p align="center"><img src="https://64.media.tumblr.com/0b89b61630c69e871b8bcab2602e86a4/b6b9e2d07a925792-d8/s2048x3072/e0cb708b945a719fa768e52ce50c9c649d7b25ba.pnj">
+<p align="center"><img src="https://64.media.tumblr.com/a28e98c06baa0b17fee7040d9035a7ae/aab72ea29bb1a1dc-ef/s1280x1920/74ee422be4d76f2482325927af09a1c6dcd214dc.pnj">
+<p align="center"><img src="https://64.media.tumblr.com/4d76a0baa47781bc6901cf483d5fe902/0033cf21d69028df-2d/s1280x1920/890d914fcd66a611e5b31f23496bd34333962f45.pnj" width="500">
+<p align="center"><img src="https://64.media.tumblr.com/3e511f20e97625683e161892f800965d/270a2fd93e371f0c-ea/s1280x1920/7dae61e08567568acf26736627169fb8b3afbe54.pnj" width="40">Basic DNI - EndoSYS - "Cishit" (dont use this) - Hazbin Hotel/Helluva Boss fans - Spooky Month fans - overly paranoid - toxic - chronically online/lifeless - 14-, 20+ - judgemental - active shit talker - TCOALL fans - anyone blocked on discord - Country Human fans - Koenig irls - Dandys world players/fans - etc, adding more . 
+<p align="center"><img src="https://64.media.tumblr.com/f102ca20617cd8bb2f60a83bda7ee430/0033cf21d69028df-17/s1280x1920/0275989e1cb27843dc10341f46acecc34c2a9395.pnj" width="500">
+<p align="center"><img src="https://64.media.tumblr.com/3e511f20e97625683e161892f800965d/270a2fd93e371f0c-ea/s1280x1920/7dae61e08567568acf26736627169fb8b3afbe54.pnj" width="40">BRAVO-ZERO DNI - VENTPONY/CYRUS DNI - KOKO DNI - MEL DNI - ABRITBASTION DNI - FRIENDS OF THESE PEOPLE DNI .
