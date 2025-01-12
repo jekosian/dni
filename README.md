@@ -7,4 +7,4 @@
 <p align="center"><img src="https://64.media.tumblr.com/3e511f20e97625683e161892f800965d/270a2fd93e371f0c-ea/s1280x1920/7dae61e08567568acf26736627169fb8b3afbe54.pnj" width="40"><a href="https://rentry.co/BlacklistCyrus">VENTPONY/CYRUS DNI</a> - KOKO DNI - MEL DNI - ABRITBASTION DNI - NATHAN DNI - FRIENDS OF THESE PEOPLE DNI .
 <p align="center"><img src="https://64.media.tumblr.com/eb38ca7ea215c2bd17229d76943ea623/e5a737ee6ba35c22-d0/s1280x1920/3b6b49282a9ec532eee92727c5863b1d0e3d9908.pnj">
 <p align="center"><img src="https://64.media.tumblr.com/d110f511788467019d75f6540070b43e/b6b9e2d07a925792-5b/s2048x3072/578b04502ec972f057eaeff47ca5400e2793c248.pnj">
-IF YOU DO NOT LIKE @mega-deth THEN YOU WONT LIKE ME!! ><
+IF YOU DO NOT LIKE @bigdumbsex THEN YOU WONT LIKE ME!! ><
